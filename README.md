@@ -1,1 +1,1 @@
-# anarchocapitaliscam
+# Anarchocapitaliscam
